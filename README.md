@@ -1,2 +1,0 @@
-# schooolsiteby
-бу кристи
